@@ -1,8 +1,7 @@
-ENCRYPTED:
-# Mzagzxodji Yjxphzio
+# Reflection Document
 
-* Ymdqz Apgg Ivhz  :
-* Kvmoizm Apgg Ivhz: 
-* Nopyzio DY: 
+* Drive Full Name  :
+* Partner Full Name: 
+* Student ID: 
 
 
